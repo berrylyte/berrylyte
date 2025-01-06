@@ -3,4 +3,5 @@
 - 💖 I like Kpop and ACGN
 - 💡 This account helps me bring my ideas to life
 - 🐣 Follow my Twitter: [@berrylyte](https://x.com/e_paleblue)
+- 🍀 Check out my Xiaohongshu: [Profile Link](https://www.xiaohongshu.com/user/profile/6354ef6b000000001901ea8a)
 - 😄 Thanks for visiting!
