@@ -1,0 +1,6 @@
+- 👋 Hi, I am @berrylyte
+- 🎨 I enjoy drawing
+- 💖 I like Kpop and ACGN
+- 💡 This account helps me bring my ideas to life
+- 🐣 Follow my Twitter: [@berrylyte](https://x.com/e_paleblue)
+- 😄 Thanks for visiting!
